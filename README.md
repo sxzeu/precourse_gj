@@ -1,2 +1,0 @@
-# precourse_gj
-
